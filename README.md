@@ -1,1 +1,1 @@
-My first readme
+exploring my world
